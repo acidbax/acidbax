@@ -2,7 +2,6 @@
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on how to code
 - 📫 How to reach me - pls don't
-- 😄 Pronouns: Acid
 - ⚡ Fun fact: I have 🖤 for cool code
 - 🖤
 
